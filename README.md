@@ -1,2 +1,15 @@
 # La-Venganza-De-Calabazin
 ARGENTINA GGJ SALTA 2023 CEUNSA
+![reunion](https://user-images.githubusercontent.com/95596561/217334968-7e525eb9-205b-408a-ad3e-c7a3f090091c.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 29 05](https://user-images.githubusercontent.com/95596561/217335060-b6c2475c-921d-49c7-bb5e-a8d78af8099e.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 27 05](https://user-images.githubusercontent.com/95596561/217335234-9d94762a-3ad0-44d8-b821-59f6d58fd745.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 26 46](https://user-images.githubusercontent.com/95596561/217335535-8947f321-a267-429e-bd8a-e6d52fafb73e.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 26 46](https://user-images.githubusercontent.com/95596561/217335535-8947f321-a267-429e-bd8a-e6d52fafb73e.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 26 05](https://user-images.githubusercontent.com/95596561/217335686-c9c74b78-aad6-4ec8-935e-1c8bfc5b9cd1.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 25 22](https://user-images.githubusercontent.com/95596561/217335935-5ef90ef9-83f9-4fda-a32b-ee786de0ad85.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 24 43](https://user-images.githubusercontent.com/95596561/217336069-38c75607-34ff-44a5-9f1a-70c447ea0406.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 24 09](https://user-images.githubusercontent.com/95596561/217336293-e5e15078-92ad-4fdc-bd52-9566b15608ad.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 23 01](https://user-images.githubusercontent.com/95596561/217336485-30b6c628-631a-4d83-8040-de0fec7f5945.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 22 42](https://user-images.githubusercontent.com/95596561/217336605-501ff37d-75df-4c55-8109-96e52d890472.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 22 20](https://user-images.githubusercontent.com/95596561/217336821-b49413c6-e567-46ed-baa3-132ecf4e8508.jpg)
+![Imagen de WhatsApp 2023-02-07 a las 15 22 03](https://user-images.githubusercontent.com/95596561/217336945-50b91852-e560-408b-b8b5-7e61e25eb0ba.jpg)
